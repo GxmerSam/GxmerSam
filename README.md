@@ -1,15 +1,4 @@
-## Hi there! 🤍
-![Intro logo](https://cdn.discordapp.com/attachments/763587003672428575/803168262664880129/20210125_130533.png)
+## Hi there! 
+![Intro logo](https://cdn.discordapp.com/attachments/763587003672428575/813283650564128819/20210222_110801.png)
 
-I'm a artist, gamer, tech, & youtuber. Who like to work on tech things, mostly trying to run pc applications on android through emulation as fast as possible. Writing books and making drawings too mainly. I know C++ and start learning java now.
-
-## My social:-
-[Facebook](http://facebook.com/GxmerSam)<br/>
-[Twitter](http://twitter.com/WinchesterSamar)<br/>
-[YouTube](http://youtube.com/GxmerSam)<br/>
-[Instagram](http://instagram.com/GxmerSam)<br/>
-Sammie#0007<br/>
-[Discord Server](https://discord.gg/y4fwxc5XFt)
-
-
-![bye](https://cdn.discordapp.com/attachments/763587003672428575/803171020684787742/20210125_132429.png)
+Working part-time as a YouTuber & Tech at home has given me a great opportunity to observe new things in this field. Sometimes I think of others who working in same field too. There are many successful examples of them which making me to work hard to my field for a bright future. Mostly working on emulation stuff and finding new ways in it to make it more efficient in everything. A veteran gamer too, having nice skills in almost all kind of games. & Good Night. 🤍
